@@ -1,0 +1,2 @@
+# cienciaabierta
+Declaración de Panamá
